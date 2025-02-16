@@ -1,3 +1,4 @@
+<img src="https://raw.githubusercontent.com/space-bio/space-bio/main/SpaceX.jpg" width="100%" >
 # # Hello, I'm [space-bio]!
 
 I am a developer and creator working on projects in the fields of science, technology, and space exploration. Currently, I am focused on developing modern technologies and conducting scientific research. My goal is to send my own rockets and satellites into space and explore the cosmos
