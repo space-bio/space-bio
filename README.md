@@ -22,8 +22,10 @@ I am a developer and creator working on projects in the fields of science, techn
 
 ## Social media
 
-- [Twitter](https://twitter.com/username)
-- [LinkedIn](https://linkedin.com/in/username)
-- [Instagram](https://instagram.com/username)
+- [YouTube](https://youtube.com/@SPACEXBIO)
+- [Instagram](https://instagram.com/spacex.bio)
+- [Instagram](https://instagram.com/spacex_arch)
+- [Twitter](https://x.com/SPACEXBIO/)
+- [LinkedIn](https://www.linkedin.com/in/space-bio/)
 
 If you are also working in these areas, be sure to contact!
