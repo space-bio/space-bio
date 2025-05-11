@@ -61,3 +61,41 @@ If you are also working in these areas, be sure to contact!
   <a href="https://raw.githubusercontent.com/space-bio/space-bio/main/certificate16.jpg"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/certificate16.jpg" style="width:300px;"/></a>
   <a href="https://raw.githubusercontent.com/space-bio/space-bio/main/загрузка.png"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/загрузка.png" style="width:300px;"/></a>
 </p>
+
+## From Kuala lumpur, Malaysia
+
+🌆✨ Exploring Kuala Lumpur – The Heart of Malaysia! 🇲🇾✈️
+
+If you're planning your next adventure, make sure Kuala Lumpur is on your list! 😍🗺️ This vibrant city is a perfect mix of tradition and modernity — where stunning skyscrapers 🌇 meet ancient temples ⛩️ and mouthwatering street food stalls 🍜🌶️.
+
+📍 Must-Visit Places:
+
+🏙️ Petronas Twin Towers – Iconic and breathtaking at night! 🌃
+
+🕌 Batu Caves – A spiritual site with colorful steps and monkeys 🐒
+
+🌸 Perdana Botanical Gardens – Peaceful and full of nature 🌿
+
+🛍️ Bukit Bintang – Shopping, food, and nightlife all in one place! 🎶🍹
+
+🍲 Foodie Paradise!
+From Nasi Lemak 🍛 to Satay 🍢 and Teh Tarik 🫖 – your taste buds will thank you! KL is heaven for food lovers 😋
+
+💡 Travel Tips:
+
+Use Grab 🚗 for easy transport!
+
+Stay hydrated – it’s hot and humid! ☀️💧
+
+Be respectful when visiting religious sites 🕌🙏
+
+📸 Don't forget your camera – every corner of this city is Insta-worthy! 📷💕
+
+Kuala Lumpur isn’t just a city, it’s an experience you’ll never forget 🧳💖
+#KualaLumpur #TravelMalaysia #Wanderlust #TravelGoals ✨🌍
+<p align="center">
+  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa1.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa2.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa3.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa4.png" style="width:400px;"/></a>
+</p>
