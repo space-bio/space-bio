@@ -10,6 +10,18 @@ I am a developer and creator working on projects in the fields of science, techn
 - **Nature Conservation**: a project created to preserve nature and preserve endangered animals
 - **Bio games**: platform for playing online games
 - **Space-courses**: platform for learning programming and building programs
+
+## Organizations
+
+<p align="center">
+  <a href="https://t.me/YOUR_TELEGRAM"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/es1.png" style="width:400px;"/>asd</a>
+  <a href="https://youtube.com/YOUR_CHANNEL"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/es2.png" style="width:400px;"/>asd</a>
+</p>
+
+<p align="center">
+  <a href="#"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/es3.png" style="width:400px;"/>asd</a>
+  <a href="#"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/es4.png" style="width:400px;"/>asd</a>
+</p>
   
 ## my curiosities
 
