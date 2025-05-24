@@ -62,40 +62,53 @@ If you are also working in these areas, be sure to contact!
   <a href="https://raw.githubusercontent.com/space-bio/space-bio/main/загрузка.png"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/загрузка.png" style="width:300px;"/></a>
 </p>
 
-## From Kuala lumpur, Malaysia
+## From New York, United States
 
-🌆✨ Exploring Kuala Lumpur – The Heart of Malaysia! 🇲🇾✈️
+🌆✨ New York City – A World in One City! 🗽🗺️
 
-If you're planning your next adventure, make sure Kuala Lumpur is on your list! 😍🗺️ This vibrant city is a perfect mix of tradition and modernity — where stunning skyscrapers 🌇 meet ancient temples ⛩️ and mouthwatering street food stalls 🍜🌶️.
+If you're dreaming of a place that’s always alive, endlessly inspiring, and full of surprises — welcome to New York City! 🏙️💫 Known as “The City That Never Sleeps”, NYC offers an unforgettable mix of culture, history, food, fashion, and sheer energy. ⚡💃
 
-📍 Must-Visit Places:
+🗽 Must-See Landmarks
+Start your adventure with the legendary Statue of Liberty 🗽 – a universal symbol of freedom and hope.
 
-🏙️ Petronas Twin Towers – Iconic and breathtaking at night! 🌃
+Climb up the Empire State Building 🏢 for a jaw-dropping view of Manhattan’s skyline 🌇.
 
-🕌 Batu Caves – A spiritual site with colorful steps and monkeys 🐒
+Walk the historic Brooklyn Bridge 🌉 at sunset for that perfect Instagram moment 📸✨.
 
-🌸 Perdana Botanical Gardens – Peaceful and full of nature 🌿
+🛍️ Shopper’s Paradise
+From luxury boutiques on 5th Avenue 💎👗 to quirky finds at SoHo’s art markets 🎨🛒 — New York is a shopping haven. Don’t forget to visit Chelsea Market 🥐👜 for food, crafts, and vintage gems!
 
-🛍️ Bukit Bintang – Shopping, food, and nightlife all in one place! 🎶🍹
+🍕 Foodie Heaven
+NYC is a food lover’s dream 🍴❤️:
 
-🍲 Foodie Paradise!
-From Nasi Lemak 🍛 to Satay 🍢 and Teh Tarik 🫖 – your taste buds will thank you! KL is heaven for food lovers 😋
+Grab a classic New York hot dog 🌭 from a street cart.
 
-💡 Travel Tips:
+Enjoy world-class sushi 🍣 in the East Village.
 
-Use Grab 🚗 for easy transport!
+Try diverse cuisines in neighborhoods like Chinatown 🥟 and Little Italy 🍝.
 
-Stay hydrated – it’s hot and humid! ☀️💧
+And of course, don’t miss the famous New York-style pizza 🍕 — thin, cheesy, perfect!
 
-Be respectful when visiting religious sites 🕌🙏
+🎭 Culture & Entertainment
+Catch a dazzling Broadway show 🎭 in Times Square 🎆, explore the Metropolitan Museum of Art 🖼️, or enjoy live jazz 🎷 in Harlem. NYC’s art and entertainment scene is unmatched!
 
-📸 Don't forget your camera – every corner of this city is Insta-worthy! 📷💕
+🌳 Parks & Nature
+Escape the hustle in Central Park 🌳🚲 — go boating, have a picnic, or just relax on the grass with skyline views. Other great green escapes: The High Line 🌿 (an elevated park on an old railway!) and Prospect Park in Brooklyn 🌼.
 
-Kuala Lumpur isn’t just a city, it’s an experience you’ll never forget 🧳💖
-#KualaLumpur #TravelMalaysia #Wanderlust #TravelGoals ✨🌍
+🚇 Getting Around
+The NYC subway 🚇 may seem chaotic, but it’s the fastest way to get around — and an adventure in itself! Don’t forget to swipe your MetroCard 💳 and keep your Google Maps handy 📱🗺️.
+
+💡 Quick Travel Tips
+Always walk fast — it's the New Yorker way! 🚶‍♂️💨
+
+Tipping is expected (15–20% at restaurants) 💵🍽️
+
+Dress for the season — summers are hot ☀️, winters are cold ❄️
+
+New York isn’t just a city — it’s a feeling, a rhythm, a million moments waiting to happen. Whether it’s your first visit or your fiftieth, NYC never stops surprising you. 🌟🗽💬
 <p align="center">
-  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa1.png" style="width:400px;"/></a>
-  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa2.png" style="width:400px;"/></a>
-  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa3.png" style="width:400px;"/></a>
-  <a href="https://maps.app.goo.gl/aDpTNkzoU9axHkFQ9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/aa4.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/suYgVcy3hmvYmBWz9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/new1.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/suYgVcy3hmvYmBWz9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/new2.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/suYgVcy3hmvYmBWz9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/new3.png" style="width:400px;"/></a>
+  <a href="https://maps.app.goo.gl/suYgVcy3hmvYmBWz9"><img src="https://raw.githubusercontent.com/space-bio/space-bio/main/new4.png" style="width:400px;"/></a>
 </p>
